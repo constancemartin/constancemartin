@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @constancemartin
+- 👀 I’m interested in learning how to code and how that skill can be used with film and photography to create some really cool stuff!
+- 🌱 I’m currently learning video production and coding
+- 📫 How to reach me: contact me via email (constancemartin898@gmail.com)
